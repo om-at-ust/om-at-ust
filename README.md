@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @om-at-ust
+- 👋 Hi, I’m ur friend Om
 - 👀 I’m interested in ...Nothing
 - 🌱 I’m currently learning ...Everything that I can
 - 💞️ I’m looking to collaborate on ...Creating Problems
